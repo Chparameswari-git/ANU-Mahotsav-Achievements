@@ -31,4 +31,4 @@ Participating in these events provided an opportunity to step beyond academics a
 These experiences have contributed to my overall personal and professional development by encouraging me to **think creatively, communicate ideas effectively, and perform confidently in competitive environments**.
 
 ##Certificate
-[📜 View Certificate](./ANU%20MAHOTSAV .pdf)
+📜 [View Certificate – ANU Mahotsav](./ANU%20MAHOTSAV%20.pdf)
