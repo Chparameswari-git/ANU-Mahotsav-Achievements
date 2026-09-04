@@ -29,5 +29,6 @@ This achievement helped demonstrate my ability to:
 Participating in these events provided an opportunity to step beyond academics and strengthen my **communication, creativity, confidence, and presentation abilities**.
 
 These experiences have contributed to my overall personal and professional development by encouraging me to **think creatively, communicate ideas effectively, and perform confidently in competitive environments**.
+
 ##Certificate
 [📜 View Certificate](./ANU%20MAHOTSAV.pdf)
